@@ -1,4 +1,4 @@
-# 
+# best Audacity for macOS LUT | text-animation + cloud-sync offers the most advanced Audacity for macOS lut, with text-animation and cloud-sync. Ideal for professional video editors
 
 
 
